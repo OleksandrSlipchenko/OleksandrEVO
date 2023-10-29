@@ -1,2 +1,4 @@
 - 👋 Hi, I’m Aleksandr
 - 🌱 I’m currently learning Leo Language and sharing with you guides 
+- 🤙 Trying youtube and different social media 
+- 👏 Content maker
